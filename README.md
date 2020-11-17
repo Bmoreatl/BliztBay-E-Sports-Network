@@ -1,1 +1,1 @@
-# BlitzBay_E-Sports_Network
+# BlitzBay E-Sports Network
